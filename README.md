@@ -1,1 +1,1 @@
-# An ongoing Research related to `Phd_Chatter_Research`
+# An ongoing Research related to `Higher Studies Stress and Management`
